@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Analise e Desenvolvimento de Sistemas, HTML, CSS, JAVASCRIPT.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Email:guilhermesoliveira888@gmail.com
-- Whatsapp: +55 (44) 98446-0764
+- Whatsapp: +55 (44) 999123970
 - Instagram: @oliver_glin
 - 😄 Pronouns: Glin
 - ⚡ Fun fact: Alem de ser apaixonado por tecnologia, tambem sou em musica e me jogo de cabeça na parte de compor e produzir minhas musicas autorais. 
